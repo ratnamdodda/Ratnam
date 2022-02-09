@@ -1,2 +1,2 @@
 # Ratnam
-Assistant Professor
+Research Scholor
